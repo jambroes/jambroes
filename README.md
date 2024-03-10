@@ -1,4 +1,4 @@
-- ✧˖°. Heya, I’m @jambroes or you can call me jambo
+- ✧˖°. Heya, I’m @jambroes or you can call me jambo!
 - ₊˚⊹ ᰔ I'm a minor, int only if ur a double digit minor
 - ⋆⭒˚.⋆ I’m interested in DSMP/QSMP , HH , FNAF , S&C , KNY , TADC , ECT 
 - ˚୨୧⋆｡˚ Pronouns: Any pronouns (mainly he/him)
