@@ -1,5 +1,5 @@
 - ✧˖°. Heya, I’m @jambroes or you can call me jambo!
-- ₊˚⊹ ᰔ I'm a minor, int only if ur a double digit minor
+- ₊˚⊹ ᰔ I'm a minor, int only if ur a double digit minor (10-18)
 - ⋆⭒˚.⋆ I’m interested in DSMP/QSMP , HH , FNAF , S&C , KNY , TADC , ECT 
 - ˚୨୧⋆｡˚ Pronouns: Any pronouns (mainly he/him)
 - ೀ Fun fact: I play lots of games and you've probably found me through one lol. My MBTI is an ISTP and I'm a Scorpio, I have ADHD and is in a SYS, RPDNIUF
