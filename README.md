@@ -1,4 +1,5 @@
 °❀⋆.ೃ࿔*:･
+![](https://komarev.com/ghpvc/?username=your-github-username&color=grey)
 call me Jambo/Venus/Nay , preferred in that order.
 
 I'm 5teen nd INTP ᡣ𐭩
