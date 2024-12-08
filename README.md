@@ -1,9 +1,9 @@
 °❀⋆.ೃ࿔*:･
-![](https://komarev.com/ghpvc/?username=your-github-username&color=grey)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=a2c2d5)
 
 call me Jambo/Venus/Nay , preferred in that order.
 
-I'm 5teen nd INTP ᡣ𐭩
+I'm 5teen nd INTP ⋆˚࿔
 
 pls int 1st and freely c+h!! (unless I have dni in my user) ⋆.˚
 
