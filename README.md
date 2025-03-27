@@ -3,7 +3,7 @@
 
 call me Jambo/Venus/Nay , preferred in that order.
 
-I'm 5teen nd INTP ⋆˚࿔
+I'm 6teen nd INTP ⋆˚࿔
 
 pls int 1st and freely c+h!! (unless I have dni in my user) ⋆.˚
 
