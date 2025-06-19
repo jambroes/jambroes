@@ -1,5 +1,5 @@
 °❀⋆.ೃ࿔*:･
-![](https://komarev.com/ghpvc/?username=your-github-username&color=ea6fa2)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=f14299)
 
 call me Jambo/Venus/Nay , preferred in that order.
 
