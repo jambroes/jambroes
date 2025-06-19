@@ -8,9 +8,10 @@ I'm 6teen nd INTP ⋆˚࿔
 pls int 1st and freely c+h!! (unless I have dni in my user) ⋆.˚
 
 
-anw heres my favorites! (otp) ↓↓
+anw here's my favorites! saiteru 4 life!! ↓↓
 
-![image](https://github.com/user-attachments/assets/6246886a-5b61-4298-9655-d1d742e444a5)
+![image](https://github.com/user-attachments/assets/e33a7f5f-5d60-433b-9308-09fb86bee2c9)
+
 
 
 
