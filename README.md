@@ -19,4 +19,4 @@ anw here's my favorites! saiteru 4 life!! ↓↓
 
 
 
-જ⁀➴ https://jambo.straw.page
+જ⁀➴ https://patreon.com/jambooze
